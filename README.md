@@ -8,7 +8,7 @@
 
 - 💬 Ask me about **My Real name Muhammad Hasan . I am 15 Year Old. I am From Pakistan city Rahim Yar Khan**
 
-- 📫 Gamerz Smm Panel Website **https://gamerzshop.socpanel.com/**
+- 📫 Gamerz Smm Panel Website **https://gamerzshop.xyz/**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
